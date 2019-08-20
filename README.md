@@ -27,3 +27,16 @@ Reporsitorio destinado para la primera actividad del curso de portafolios de inv
 +++++0008888888__
 ++++0008888888___
 +++0008888888____
+
+OOOOo___________________________________
+OOOOOOOOO_____oOOOo_______________________
+OOOOOOOOOOOOOOOOO@OOO______________________
+OOOOOOOOOOOOOOOOOOOOOO_______________________o©O©O
+OOOO??OOO¦¦¦OOO¦¦¦OOO0000000000000000000000000|o©O©O©o
+OOOOO??OOO¦¦¦OOO¦¦¦OOO0000000000000000000000000|oOOOOOo
+OOOOO??OOO¦¦¦OOO¦¦¦OOO0000000000000000000000000|o©O©O©o
+OOOOO??OOO¦¦¦OOO¦¦¦OOOO__________________________o©O©O
+OOOOOOO¶OOOOOOOOOOOOOO_______________________
+OOO¶OOOO¶OOOOOOOOOOOOO______________________
+OOO¶OOOOOO_____ºOOOº________________________
+OOOOOº__
